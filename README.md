@@ -12,4 +12,8 @@
 
 ---
 
+## Видео геймплея, доступен на YouTube по ссылке - https://youtu.be/Veo1JS0lMPk
+
+---
+
 ## Автор Fenler
