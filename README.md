@@ -12,7 +12,7 @@
 
 ---
 
-## Видео геймплея, доступен на YouTube по ссылке - https://youtu.be/Veo1JS0lMPk
+## Видео геймплея, доступен на YouTube - https://youtu.be/Veo1JS0lMPk
 
 ---
 
